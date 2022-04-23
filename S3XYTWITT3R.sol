@@ -5,6 +5,9 @@ S3XY TWITT3R (S3XY)
 Telegram :
 https://t.me/S3XYTwitt3r
 
+Twitter : 
+https://twitter.com/s3xytwitt3r
+
 Website: 
 S3xytwitt3r.com
 
